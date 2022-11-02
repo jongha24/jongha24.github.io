@@ -1,2 +1,2 @@
-# jongha24.github.io
+# Jongha Lee
 Personal Page
